@@ -1,1 +1,1 @@
-https://martin-juncos.github.io/pending/
+https://fscorrales.github.io/pending_page/
